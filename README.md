@@ -121,7 +121,7 @@ SRM Institute of Science and Technology, Ramapuram Campus
 
 📍 Chennai, India  
 ✉️ Email: [rishikcr72401@gmail.com](mailto:rishikcr72401@gmail.com)  
-🔗 LinkedIn: [https://www.linkedin.com/in/abnsrishik](https://www.linkedin.com/in/abnsrishik)
+🔗 LinkedIn: [https://www.linkedin.com/in/abnsrishik](https://www.linkedin.com/in/abnsrishik).
 
 ---
 
